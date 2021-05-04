@@ -1,0 +1,1 @@
+flour, leavener, salt, sugar, butter, egg, & vanilla. It’s the ratios of those ingredients that make this recipe stand out from the rest. Mix 2 and 1/4  cups of flour with 1 teaspoon of baking soda, 1/2 teaspoon of salt, and my favorite: cornstarch. I use 1 and 1/2 teaspoons of cornstarch in this recipe.
